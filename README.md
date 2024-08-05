@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ABNICOLLY1HEM
-- 👀 I’m interested in philosophy and art 
+- 👀 I’m interested in psychology, philosophy and art 
 - 🌱 I’m currently learning programação
 - 💞️ I’m looking to collaborate on Alura ...
 - 📫 How to reach me @00001127914431SP@al.educacao.sp.gov.br
